@@ -11,3 +11,4 @@ my wife kawai no egao
 
 
 ![image](https://user-images.githubusercontent.com/95206756/143827633-400c9b90-b73b-4c65-a619-6426e140fe7c.png)
+[this image](https://twitter.com/Dark_PEM/status/1460067143173558274?t=eJElyRsyNPE-6Nx5btiBnQ&s=19)
